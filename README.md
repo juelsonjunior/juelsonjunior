@@ -16,4 +16,3 @@
 </div>
 <br>
 Apaixonado por tecnologios, é fascinado por tudo que a area de tecnologia tem me ensinado<br>
-Att: Servidor rodando🚀 na porta:kkkk😁
